@@ -1,0 +1,2 @@
+# sergenisiktimamdan2
+sergeniamdansikiyorum
